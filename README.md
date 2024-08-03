@@ -15,3 +15,4 @@ https://ygoprodeck.com/deck/ice-barrier-runick-508615
 https://duelingnexus.com/blog/ice-barrier-60-deck-2024/
 
 
+scalping from those sites
